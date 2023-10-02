@@ -1,3 +1,3 @@
 haan byi kya haal chaal hain 
-mahak patva rha hai k nhin 
+bndi patva rha hai ka nahi
 bhenchod meri bhi setting krvadoh
